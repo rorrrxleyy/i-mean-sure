@@ -1,3 +1,4 @@
 # i-mean-sure
 damn ikd br
-![image](https://github.com/rorrrxleyy/i-mean-sure/assets/152163247/19c96545-f33b-43e3-acf0-8a741f4e4511)
+![image](https://github.com/rorrrxleyy/i-mean-sure/assets/152163247/77a2b259-571a-4894-a330-fd4c1bdcd3a2)
+
